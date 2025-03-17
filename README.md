@@ -4,11 +4,11 @@
 
 ────── · · ୨୧ · · ──────
 ⠀
- ㅤ ㅤㅤㅤㅤ ㅤㅤㅤ ৎ୭ 𝑆𝑒𝑑𝑢𝑐𝑒 𝑎𝑛𝑑 𝐷𝑒𝑠𝑡𝑟𝑜𝑦 !
+ ㅤ ㅤㅤㅤㅤ ㅤㅤㅤ  𝑆𝑒𝑑𝑢𝑐𝑒 𝑎𝑛𝑑 𝐷𝑒𝑠𝑡𝑟𝑜𝑦ৎ୭!
   ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤ
 ────── · · ୨୧ · · ────── ㅤㅤ
 
 ㅤ ㅤㅤ
-ㅤ ㅤㅤ![1000012318](https://media.tenor.com/T3jkUGPchbsAAAAM/team-dark-shadow-the-hedgehog.gif)
+ㅤㅤ![1000012318](https://media.tenor.com/T3jkUGPchbsAAAAM/team-dark-shadow-the-hedgehog.gif)
 ㅤ ㅤㅤ
 𐔌
