@@ -9,6 +9,5 @@
 ────── · · ୨୧ · · ────── ㅤㅤ
 
 ㅤ ㅤㅤ
-ㅤㅤ![1000012318](https://media.tenor.com/T3jkUGPchbsAAAAM/team-dark-shadow-the-hedgehog.gif)
+![1000012318](https://media.tenor.com/T3jkUGPchbsAAAAM/team-dark-shadow-the-hedgehog.gif)
 ㅤ ㅤㅤ
-𐔌
