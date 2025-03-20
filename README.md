@@ -1,4 +1,4 @@
-rentry is being a pain in the ASS (working on fixing the pictures)
+rentry is being a pain in the ASS (working on keeping the pictures up)
  
  ᘍ ᛝ [𝑅𝑒𝑛𝑡𝑟𝑦](https://rentry.co/RougeVi) ᛝ ᘊ
 ![1000012318](https://github.com/user-attachments/assets/9f6374f0-1cb2-45e3-bd9b-f880bb8544f1)
